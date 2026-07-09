@@ -2,7 +2,7 @@
 
 **`Entusiasta em Seguranca cibernetica`**
 
-Me chamo Natanael Barros, tenho 18 anos e sou natural do Paraná. Concluí o ensino médio no CCM Monteiro Lobato. Atualmente, nao estou cursando uma faculdade mas venho estudando para a área em questao.
+Olá me chamo Natanael Barros, tenho 18 anos e sou natural do Paraná. Concluí o ensino médio no CCM Monteiro Lobato. Atualmente, nao estou cursando uma faculdade mas venho estudando para a área em questao.
 <p align="left">
 
 
